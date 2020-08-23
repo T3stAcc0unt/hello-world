@@ -6,3 +6,4 @@ so yeah meanwhile im here let's just type some stuff out
 Can I ask you a question?
 Yes I can.
 Do you know any places where I can learn to code?
+and if you do please put them in request sub catolog thing I mean
